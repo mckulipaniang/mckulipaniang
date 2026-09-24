@@ -4,10 +4,6 @@
 
 希望你们能让我火起来
 
-这是我的B站主页：
-
-[点击跳转到我的B站主页](https://space.bilibili.com/3546845355706427)
-
 > 我之前的那个B站账号[@Windows11娘232 ](https://space.bilibili.com/3546838258944614)已经被我抛弃了，现在打算做小号，也要在[@Minecraft苦力怕娘 ](https://space.bilibili.com/3546845355706427)（本号）发我之前的那个号[@Windows11娘232 ](https://space.bilibili.com/3546838258944614)的延续视频，考古我以前的号你可以看看这个：[\[bilibili视频\]考古Windows11娘232及其小号 ](https://www.bilibili.com/video/BV1rtji6mELG)
 
 ---
