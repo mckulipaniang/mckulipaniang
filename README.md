@@ -26,7 +26,7 @@
 
 ## 留言的时候请在此处留言
 
-[点击跳转到留言板\(议题\)](https://github.com/mckulipaniang/mckulipaniang/issues)
+[点击跳转到留言板\(议题\)](https://github.com/mckulipaniang/mckulipaniang/issues#1)
 
 ---
 
