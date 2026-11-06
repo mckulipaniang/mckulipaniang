@@ -28,7 +28,7 @@
 
 欢迎在这里留言：
 
-[点击跳转到留言板\(议题\)](https://github.com/mckulipaniang/mckulipaniang/issues/1)
+[点击跳转到留言板](https://github.com/mckulipaniang/mckulipaniang/issues/1)
 
 ---
 
