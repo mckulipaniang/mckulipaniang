@@ -32,6 +32,14 @@
 
 ---
 
+## Wiki
+
+[点击前往Wiki主页](https://github.com/mckulipaniang/mckulipaniang-wiki/wiki/%E4%B8%BB%E9%A1%B5)
+
+[点击创建Wiki页](https://github.com/mckulipaniang/mckulipaniang-wiki/wiki/_new)
+
+---
+
 > 现在想冲10000粉丝，部分视频很少人看，还想早日成为Lv6，你们能给综合三连吗，这样做的话，同时也会提升你们的经验值，也祝贺你们早日成为Lv6
 
 > bilibili账号：[@Minecraft苦力怕娘 ](https://space.bilibili.com/3546845355706427)
