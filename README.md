@@ -24,6 +24,12 @@
 
 ---
 
+## 留言的时候请在此处留言
+
+[点击跳转到留言板\(议题\)](https://github.com/mckulipaniang/mckulipaniang/Issues)
+
+---
+
 > 现在想冲10000粉丝，部分视频很少人看，还想早日成为Lv6，你们能给综合三连吗，这样做的话，同时也会提升你们的经验值，也祝贺你们早日成为Lv6
 
 > bilibili账号：[@Minecraft苦力怕娘 ](https://space.bilibili.com/3546845355706427)
